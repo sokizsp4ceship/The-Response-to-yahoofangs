@@ -1,5 +1,7 @@
 # The-Response-to-yahoofangs
 The so called "apology" ive received
+
+
 heya im a player from pony town most people know as "soki" i recently was copied by "@dreamingfangs" before it was changed to "@yahoofangs" and i just want to say the "apology" i got wasn't a apology at all its mostly him explaining the story all the way wrong. hes saying what he wants to say which makes him look like the victim. im not "victimizing" myself im here to explain what ACTUALLY happened and ask to be left alone. 
 
 first of all the "getting mad because was whispered while sleeping" part i wasnt mad cuz i was whispered 2 days in a row abt inspo taking, i was mad BECAUSE u are still taking inspo of my skins basically taking my style. 
